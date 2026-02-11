@@ -19,3 +19,12 @@ Arguments :
 - Stéréotype de l’homme qui approche la femme
 - Difficulté de se libérer du poids du PTSD d’actes de violences sexuelles
 - Côté masculin des femmes
+- Préjugées des critères minimum des femmes
+
+## Rattacher le tout aux systèmes de pouvoir (patriacat - suprémacie blanche - capitalisme)
+
+### patriacat
+
+### suprémacie blanche
+
+### capitalisme
